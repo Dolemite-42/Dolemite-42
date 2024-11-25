@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI in Africa
 - 🌱 I’m currently learning anyhting and everything AI, oh and Web3 on ETHDada
 - 💞️ I’m looking to collaborate on AI community for start ups
-- 📫 How to reach me 
+- 📫 You can find me on X: @murugi_martha
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Dolemite is my name and coding and innovating is my game.
 

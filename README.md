@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dolemite-42
-- 👀 I’m interested in AI for Africa
-- 🌱 I’m currently learning anyhting and everything AI, oh and Web3 on ETHDada
+- 👀 I’m interested in AI for and by Africa
+- 🌱 I’m currently learning anything and everything AI, oh and Web3.
 - 💞️ I’m looking to collaborate on AI community for start ups
 - 📫 You can find me on X: @murugi_martha
 - 😄 Pronouns: She/Her
